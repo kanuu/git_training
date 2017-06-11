@@ -14,3 +14,11 @@ gitの入門講座用のレポジトリです。
 
 
 dfghjgfdsfgnb
+aaaaaaaa
+aaaaa
+aaaaaa
+
+
+
+
+wehgjhgfdaseretryuhgfdsq
